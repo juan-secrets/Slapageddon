@@ -15,6 +15,8 @@ run the project in **UE5** (not just play the build), make sure to
 download the following:
 
 -   [52 Card Decks](https://www.fab.com/listings/57e8bc76-6f19-4b5e-bf09-e912eba4c88f)
+-   [Wild West Town - Relive the Western Adventures](https://www.fab.com/listings/25d8d2df-3c68-4642-adc9-53169e12ad12)
+-   [Old West - VOL 5 - Town Props](https://www.fab.com/listings/216c3025-105f-44e0-ae16-756be31c452d)
 
 ## 🚀 Getting Started
 
