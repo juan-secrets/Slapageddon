@@ -17,7 +17,8 @@ download the following:
 -   [52 Card Decks](https://www.fab.com/listings/57e8bc76-6f19-4b5e-bf09-e912eba4c88f)
 -   [Wild West Town - Relive the Western Adventures](https://www.fab.com/listings/25d8d2df-3c68-4642-adc9-53169e12ad12)
 -   [Old West - VOL 5 - Town Props](https://www.fab.com/listings/216c3025-105f-44e0-ae16-756be31c452d)
--   [Old West - VOL 4 - Goods and Supplies](https://www.fab.com/listings/7ec26cda-15cf-4b62-ac9b-45f156676e51)
+-   [Cowboy Elderly](https://www.fab.com/listings/f6c625e6-c08b-47d2-bc96-cb6da7fe8a23)
+-   [Bandit](https://www.fab.com/listings/1db5b88d-cf38-4e0a-8feb-c7f53303f28c)
 
 ## 🚀 Getting Started
 
